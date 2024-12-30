@@ -10,7 +10,7 @@
 
 ## How to Reach Me
 - 📫 **Email:** [danifeg07@gmail.com](mailto:danifeg07@gmail.com)  
-- 🎮 **Discord Server:** [Join NaijaLink](https://discord.gg/5pNEbYZu6w)  
+- 🎮 **Discord Server:** [Join DarkLink](https://discord.gg/5pNEbYZu6w)  
 
 ## Fun Facts
 - 😄 Pronouns: He/Him  
